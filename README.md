@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Vivikya
-- 👀 I’m interested in finance particulary - stock market, deritives and equities
+- 👋 Hi, I’m @Vivian
+- 👀 I’m interested in financial trading particulary -  commodity deritives.
 - 📫 How to reach me - vivikya97@gmail.com
 
 <!---
